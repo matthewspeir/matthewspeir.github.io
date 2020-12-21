@@ -18,7 +18,7 @@ I graduated from the University of California Santa Cruz in 2013 with a Bachelor
 What's next: History!
 =====
 
-Currently, I am attempting to pursue a career in the historical sciences, specifically the history of science. I am currently enrolled at Sacramento City College where I am taking history courses and pursuing an Associates for Transfer in History. I plan to apply to Masters Programs in the History of Science or more general History in late 2021 and early 2022. 
+Currently, I am attempting to pursue a career in history, specifically the history of science. I am currently enrolled at Sacramento City College where I am taking history courses and pursuing an Associates for Transfer in History. I plan to apply to Masters Programs in the History of Science or more general History in late 2021 and early 2022. 
 
 Personal life
 =====
